@@ -67,5 +67,5 @@ We may update this Privacy Policy from time to time. If we do, we’ll notify yo
 If you have any questions or concerns about this Privacy Policy or your data, please reach out:
 
 📧 Email: info@rightships.com
+
 📍 Address: Nbc complex off No 216 Sector 11 Belapur cbd Navi Mumbai - 400614
-~
